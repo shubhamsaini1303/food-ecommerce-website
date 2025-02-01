@@ -1,1 +1,0 @@
-dekho ji mst rho
